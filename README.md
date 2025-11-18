@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... video games and art
 - 🌱 I’m currently learning ... godot and to paint
 - 💞️ I’m looking to collaborate on ... nothing atm 
-- 📫 How to reach me ... https://liinks.co/lilfishowo
+- 📫 How to reach me ... https://lnk.bio/LilFishowo
 - 😄 Pronouns: ... they/they
 - ⚡ Fun fact: ... sharks need to keep swiming to breathe
 
